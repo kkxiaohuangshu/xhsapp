@@ -1,8 +1,8 @@
 最新地址打不開網域前加https://
 
-xhs7.vip
+xhs9.vip
 
-海外永久（需翻牆） xhs7.vip
+海外永久（需翻牆） xhs9.vip
 
 
 
