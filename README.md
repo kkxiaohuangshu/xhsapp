@@ -1,8 +1,8 @@
 最新地址打不開網域前加https://
 
-kxhs22.vip
+kxhs23.vip
 
-海外永久（需翻牆） kxhs22.vip
+海外永久（需翻牆） kxhs23.vip
 
 
 
